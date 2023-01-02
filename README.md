@@ -22,4 +22,5 @@ DNSتەاوریرر ەتێەینوڵاک ەەس پیتتەاوڵارار روو�
 ![66](https://user-images.githubusercontent.com/60549548/210277646-8f6371a1-04ae-4760-8889-2710b82abd2e.PNG)
 
 
-
+https://www.youtube.com/@cybershieldteam
+https://www.facebook.com/cybershield.team
